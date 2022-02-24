@@ -1,2 +1,5 @@
-# chrono-legacy-cheat-codes-free-diamonds-hacks
-Chrono Legacy Cheats and Codes unlimited diamonds Hacks guide
+# Chrono Legacy Cheats and Codes unlimited diamonds Hacks guide
+
+Chrono Legacy Cheats and Codes unlimited diamonds Hacks guide - The most basic category is attackers. As the name suggests, these are units that specifically cause damage to the target. The guy in the chicken suit and princess Argenta are examples of attackers. Tanks are built for defense and usually use sarcasm to attract enemies rather than their allies to attack them. Crook chuck and leader banhedley are examples of tanks. Without a therapist, any team is incomplete, because only a therapist can ensure that the team recovers when needed. However, the healers in the game seem to be very vulnerable and need some protection from allies. Hiker and paramedic Bobby is an example of a healer. Last but not least, the support course is the only missing course in your starting lineup. These units can strengthen allies or weaken enemies. With a five person team, the support force provides many strategic advantages in PvE and PvP operations. Dr. Kelvin and nya are examples of this Chrono Legacy code.
+
+<a href="https://windmod.icu/chrono-legacy/">view here</a>
